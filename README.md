@@ -1,1 +1,0 @@
-# Abdulqadir-s-Portfolio
